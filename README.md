@@ -1,2 +1,2 @@
 # Algoritmos-I
-para el curso de Algoritmos I
+No lo raidees ps xd
